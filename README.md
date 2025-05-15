@@ -8,5 +8,5 @@
 - 💬 Ask me about ... Newts and heavy metal! 🤘⚡
 - 📫 How to reach me: ... c.towler.23@abdn.ac.uk
 - 😄 Pronouns: ... He/Him 
-- ⚡ Fun fact: ... Trans women are women
--->
+- 📢 Fun fact: ... Trans women are women 🏳️‍⚧️🏳️‍🌈 
+
